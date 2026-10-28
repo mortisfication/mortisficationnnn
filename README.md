@@ -1,5 +1,3 @@
-<a href="https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0">be careful and be aware of copytown bots, info doc here</a> 
-<br> <br>
 <p align="left"> 
  
  ![](https://komarev.com/ghpvc/?username=mortisfication&color=2A2A2A&style=for-the-badge&label=mortifed&abbreviated=true) <br> </p>
