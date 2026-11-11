@@ -2,15 +2,34 @@
  
  ![](https://komarev.com/ghpvc/?username=mortisfication&color=2A2A2A&style=for-the-badge&label=mortifed&abbreviated=true) <br> </p>
 
-<p align="center"> <img align="right" src="https://github.com/mortisfication/mortisfication/blob/9d716ae60dd7b4bb94c3c339981c9df43084105a/okay_cute.png" alt="cute" width="450"> </p>
+<p align="center"> <img align="right" src="https://github.com/mortisfication/mortisficationnnn/blob/0485f4fd65f7224e502fe1cfadf5bc3cf2752566/okay_cute.png" alt="cute" width="450"> </p>
 
 ---
 
 <p align="left">⠀
- <a href="https://en.pronouns.page/@mortisfication"> <img src="https://github.com/mortisfication/mortisfication/blob/4a26ee75ca1b5efeba2490b0e12eaaafbf8bd810/pronouns%20page%20usb.png" alt="sign ata!" width="220"></a>
-<a href="https://mortisfication.atabook.org"> <img src="https://github.com/mortisfication/mortisfication/blob/c3f7ad04c99d66d0b357fd38286b36f9ff7efcca/atabook%20sd%20card.png" alt="sign ata!" width="130"></a> 
+ <a href="https://en.pronouns.page/@mortisfication"> <img src="https://github.com/mortisfication/mortisficationnnn/blob/0485f4fd65f7224e502fe1cfadf5bc3cf2752566/pronouns%20page%20usb.png" alt="pronouns page" width="220"></a>
+<a href="https://mortisfication.atabook.org"> <img src="https://github.com/mortisfication/mortisficationnnn/blob/0485f4fd65f7224e502fe1cfadf5bc3cf2752566/atabook%20sd%20card.png" alt="sign ata!" width="130"></a> 
 </p>
-
+<br> 
+<br>
+<br><br> 
+<br>
+<br><br> 
+<br>
+<br><br> 
+<br>
+<br>
+<br> 
+<br>
+<br>
+<br>
+<br>
+<br> 
+<br>
+<br>
+<br>
+<br> 
+<br>
 <h6 align="center">
 
 <details>
@@ -21,23 +40,3 @@
  </div>
 </details>
 </h6>
-<br> 
-<br>
-<br><br> 
-<br>
-<br><br> 
-<br>
-<br><br> 
-<br>
-<br>
-<br> 
-<br>
-<br>
-<br>
-<br>
-<br> 
-<br>
-<br>
-<br>
-<br> 
-<br>
