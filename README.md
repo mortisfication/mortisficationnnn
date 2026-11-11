@@ -7,7 +7,7 @@
 ---
 
 <p align="left">⠀
- <a href="https://en.pronouns.page/@mortisfication"> <img src="https://github.com/mortisfication/mortisficationnnn/blob/0485f4fd65f7224e502fe1cfadf5bc3cf2752566/pronouns%20page%20usb.png" alt="pronouns page" width="220"></a>
+ <a href="https://en.pronouns.page/@mortisfication"> <img src="https://github.com/mortisfication/mortisficationnnn/blob/0485f4fd65f7224e502fe1cfadf5bc3cf2752566/pronouns%20page%20usb.png" alt="pronouns page" width="200"></a>
 <a href="https://mortisfication.atabook.org"> <img src="https://github.com/mortisfication/mortisficationnnn/blob/0485f4fd65f7224e502fe1cfadf5bc3cf2752566/atabook%20sd%20card.png" alt="sign ata!" width="130"></a> 
 </p>
 <br> 
